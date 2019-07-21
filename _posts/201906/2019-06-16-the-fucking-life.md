@@ -22,4 +22,4 @@ whatever，作为一个普通人，我想通过努力把自己变得不那么普
 
 但愿人长久，一起走出属于我俩的平凡之路。
 
-https://www.bilibili.com/video/av53698256
+[how do I get better today than I was yesterday?](https://www.bilibili.com/video/av53698256)
